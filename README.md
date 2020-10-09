@@ -1,2 +1,2 @@
 # ningchon.github.io
-ควย
+สวัสดีค่ะ
